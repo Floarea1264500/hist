@@ -1,1 +1,1 @@
-The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
+The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
