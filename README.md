@@ -1,1 +1,1 @@
-The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
+The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
