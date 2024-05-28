@@ -1,1 +1,1 @@
-The construction of Stonehenge in England began around 3000 BC.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
