@@ -1,1 +1,1 @@
-The Zimmermann Telegram, intercepted by British intelligence in 1917, played a crucial role in the United States' decision to enter World War I.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
