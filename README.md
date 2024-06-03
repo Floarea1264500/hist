@@ -1,1 +1,1 @@
-Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
+The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
