@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
