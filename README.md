@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
