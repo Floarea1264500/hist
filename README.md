@@ -1,1 +1,1 @@
-The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
+Nelson Mandela became South Africa's first black president in 1994, ending decades of apartheid rule.
