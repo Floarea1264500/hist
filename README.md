@@ -1,1 +1,1 @@
-Nelson Mandela became South Africa's first black president in 1994, ending decades of apartheid rule.
+The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
