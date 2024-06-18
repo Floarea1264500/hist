@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
