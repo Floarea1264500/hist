@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
