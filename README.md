@@ -1,1 +1,1 @@
-Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
+The Great Pyramid of Giza was built around 2560 BC.
