@@ -1,1 +1,1 @@
-The Magna Carta, signed in 1215, limited the power of the English monarchy and laid the groundwork for modern constitutional law.
+The fall of the Soviet Union in 1991 marked the end of the Cold War era.
