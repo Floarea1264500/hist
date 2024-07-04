@@ -1,1 +1,1 @@
-The fall of the Soviet Union in 1991 marked the end of the Cold War era.
+Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
