@@ -1,1 +1,1 @@
-Leonardo da Vinci painted the Mona Lisa between 1503 and 1506.
+Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
