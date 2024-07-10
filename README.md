@@ -1,1 +1,1 @@
-The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
+World War I, also known as the Great War, lasted from 1914 to 1918.
