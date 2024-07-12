@@ -1,1 +1,1 @@
-World War I, also known as the Great War, lasted from 1914 to 1918.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
