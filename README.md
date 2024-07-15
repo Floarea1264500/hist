@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+The sinking of the RMS Titanic in 1912 remains one of the deadliest maritime disasters in history.
