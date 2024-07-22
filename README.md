@@ -1,1 +1,1 @@
-The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
