@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
