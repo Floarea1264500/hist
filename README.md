@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
