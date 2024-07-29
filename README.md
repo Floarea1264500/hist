@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
